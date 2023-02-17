@@ -22,7 +22,7 @@
 <p align="center">I will not be held accountable for any illegal activities.</p>
 ## 📅INFOMATION
 
- ![ádsad](https://user-images.githubusercontent.com/89723323/188302848-bc9b2e65-804d-4b5f-834d-c53afdd6e6c1.png)
+ ![ádsad](https://user-images.githubusercontent.com/![image](https://user-images.githubusercontent.com/125417276/219604055-5104dd98-9f66-467c-8330-2362db22f619.png))
 
  ##📙 DEMO VIDEO
 
