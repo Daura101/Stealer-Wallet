@@ -22,7 +22,7 @@
 <p align="center">I will not be held accountable for any illegal activities.</p>
 ## 📅INFOMATION
 
- ![ádsad](https://user-images.githubusercontent.com/![image](https://user-images.githubusercontent.com/125417276/219604055-5104dd98-9f66-467c-8330-2362db22f619.png))
+ ![Image-alt](https://github.com/Daura101/Stealer-Wallet/blob/main/image.png))
 
  ##📙 DEMO VIDEO
 
